@@ -2,10 +2,14 @@
 
 ## Education
 
-PhD
-BS
+PhD in natural resources, China Agricultural University, 2009
+
+BS, China Agricultural University, 2003
 
 
 ## Employment
-project manager, DRC
+Senior Researcher, Dayu Irrigation
+
+Project manager, DRC
+
 Senior consultant, DRC
